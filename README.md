@@ -1,1 +1,1 @@
-# narreddy-katragadda-koganti group
+# katragadda-koganti group
